@@ -2,7 +2,7 @@
 
 **AI/ML enthusiast building models that explain their reasoning, not just their score.**
 
-Islamabad, Pakistan · BSCS, Air University Islamabad (2024–) · [LinkedIn](https://www.linkedin.com/in/nafay-abdullah-9095b8340) · [nafayabdullah321@gmail.com](mailto:nafayabdullah321@gmail.com)
+Islamabad, Pakistan · BSCS, Air University Islamabad (2024–2028) · [LinkedIn](https://www.linkedin.com/in/nafay-abdullah-9095b8340) · [nafayabdullah321@gmail.com](mailto:nafayabdullah321@gmail.com)
 
 ---
 
